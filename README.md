@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rahul Kumar
-**A passionate Data Analyst || Forntend Devloper**
+**A passionate Data Analyst || Frontend Devloper**
 
 Email Me 👉 ✉️ **rahulrahulkumar8873@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
